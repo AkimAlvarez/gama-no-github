@@ -1,1 +1,1 @@
-Estou achando o curso extremamente, interessante e intuitivo!
+Estou achando o curso extremamente interessante e intuitivo!
